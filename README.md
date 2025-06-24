@@ -5,3 +5,4 @@
 [Día 3](https://youtu.be/N_HrarfJuRg?si=jfXI2CNzUkpEQ0cY&t=6634)
 [Día 4](https://youtu.be/N_HrarfJuRg?si=3hSC3hG33svk95tS&t=7285)
 [Dia 5](https://youtu.be/N_HrarfJuRg?si=IhzZCdV0cOWabbrj&t=7721)
+[Día 6](https://youtu.be/N_HrarfJuRg?si=pTGcFcjcOBiJWZVB&t=8785)
