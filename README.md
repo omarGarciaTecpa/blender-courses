@@ -8,3 +8,5 @@
 [Día 06](https://youtu.be/N_HrarfJuRg?si=pTGcFcjcOBiJWZVB&t=8785)
 [Día 07](https://youtu.be/N_HrarfJuRg?si=s9V8i3pbVBNJF8DC&t=9831)
 [Día 07](https://youtu.be/N_HrarfJuRg?si=tG1ZzuCkVuw2-pus&t=10116)
+[Día 08](https://youtu.be/N_HrarfJuRg?si=DCdk82xioR5EPcuw&t=10878)
+
