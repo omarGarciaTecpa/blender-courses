@@ -7,3 +7,4 @@
 [Dia 05](https://youtu.be/N_HrarfJuRg?si=IhzZCdV0cOWabbrj&t=7721)
 [Día 06](https://youtu.be/N_HrarfJuRg?si=pTGcFcjcOBiJWZVB&t=8785)
 [Día 07](https://youtu.be/N_HrarfJuRg?si=s9V8i3pbVBNJF8DC&t=9831)
+[Día 07](https://youtu.be/N_HrarfJuRg?si=tG1ZzuCkVuw2-pus&t=10116)
