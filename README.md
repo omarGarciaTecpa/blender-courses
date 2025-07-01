@@ -11,3 +11,4 @@
 - [Día 08](https://youtu.be/N_HrarfJuRg?si=DCdk82xioR5EPcuw&t=10878)
 - [Día 09](https://youtu.be/N_HrarfJuRg?si=MRzuPmSLbD8N2y-z&t=11368)
 - [Día 11](https://youtu.be/N_HrarfJuRg?si=R9DdpJvWPF0C83lX&t=13906)
+- [Día 12](https://youtu.be/N_HrarfJuRg?si=6-ZMe2IjxuF6_4Bj&t=15096)
