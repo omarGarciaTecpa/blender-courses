@@ -16,3 +16,4 @@
 - [Día 14](https://youtu.be/N_HrarfJuRg?si=lOsFt3FKLp9O3UHi&t=18387)
 - [Día 15](https://youtu.be/N_HrarfJuRg?si=LRRRBpWB-RfwSqC0&t=18950)
 - [Día 16](https://youtu.be/N_HrarfJuRg?si=dFYvnjeQWPLlQ_0n&t=19483)
+- [Día 17](https://youtu.be/N_HrarfJuRg?si=5VEoHPCuL_7BCnZB&t=19637)
