@@ -17,3 +17,8 @@
 - [Día 15](https://youtu.be/N_HrarfJuRg?si=LRRRBpWB-RfwSqC0&t=18950)
 - [Día 16](https://youtu.be/N_HrarfJuRg?si=dFYvnjeQWPLlQ_0n&t=19483)
 - [Día 17](https://youtu.be/N_HrarfJuRg?si=5VEoHPCuL_7BCnZB&t=19637)
+
+
+
+[Blender Guru - Beginner Blender 4.0 Tutorial](https://youtu.be/B0J27sf9N1Y?si=YdRiCJ2QS2dteJiy)
+- [Día 05](https://youtu.be/fsLO1F5x7yM?si=cW8t8zi3tHRzvLw4)
