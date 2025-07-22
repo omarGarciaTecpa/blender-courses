@@ -23,3 +23,4 @@
 [Blender Guru - Beginner Blender 4.0 Tutorial](https://youtu.be/B0J27sf9N1Y?si=YdRiCJ2QS2dteJiy)
 - [Día 05](https://youtu.be/fsLO1F5x7yM?si=cW8t8zi3tHRzvLw4)
 - [Día 06](https://youtu.be/TLrA6eJOfqk?si=4zMQYF-L-owmykyC&t=1)
+- [Día 07](https://youtu.be/EWTOy5-e4Ns?si=EpBuJ3q52zPaTeZX&t=816)
