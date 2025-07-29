@@ -25,3 +25,4 @@
 - [Día 06](https://youtu.be/TLrA6eJOfqk?si=4zMQYF-L-owmykyC&t=1)
 - [Día 07](https://youtu.be/EWTOy5-e4Ns?si=EpBuJ3q52zPaTeZX&t=816)
 - [Día 08](https://youtu.be/EWTOy5-e4Ns?si=U5fG1RelfX6Lo38J&t=1154)
+- [Día 09](https://youtu.be/D2rZljDYGdM?si=AI0Ckk0IDqRXT4bF&t=313)
